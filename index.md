@@ -1,3 +1,7 @@
+---
+title: "The Reading Pillow: Blog"
+---
+
 # Welcome to "The Reading Pillow"
 
 Your cozy corner for the best children's books recommendations! Our blog is dedicated to sparking a love of reading in the hearts of children everywhere. With an ever-growing library of books out there, finding the perfect read for your little one can sometimes feel like looking for a needle in a haystack. That's where we come in!
